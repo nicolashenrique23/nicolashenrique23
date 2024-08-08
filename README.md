@@ -11,6 +11,4 @@ meu nome e Nicolas Henrique
 rodrigues.nicolas23@escola.pr.gov.br
 
 
-
-
-![](https://media1.tenor.com/m/opEBWw0uddoAAAAC/umm.gif)
+![](https://media1.tenor.com/m/UKbjT4LDEDoAAAAC/cristiano-ronaldo.gif)
